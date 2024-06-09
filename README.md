@@ -23,7 +23,7 @@
 
 - 3o semestre 📀
 
-- 18 anos ⏳
+- 19 anos ⏳
 
 - Brasília 🏴󠁢󠁲󠁤󠁦󠁿
 
