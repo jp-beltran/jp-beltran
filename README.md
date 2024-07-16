@@ -21,7 +21,7 @@
 ## Sobre mim: 
 - Curso ADS 💻
 
-- 3o semestre 📀
+- 4o semestre 📀
 
 - 19 anos ⏳
 
