@@ -23,9 +23,9 @@
 ## Sobre mim: 
 - Curso ADS 💻
 
-- 4o semestre 📀
+- 5 semestre 📀
 
-- 19 anos ⏳
+- 20 anos ⏳
 
 - Brasília 🏴󠁢󠁲󠁤󠁦󠁿
 
